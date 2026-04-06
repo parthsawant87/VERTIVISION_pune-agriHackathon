@@ -1,1 +1,0 @@
-# VERTIVISION_pune-agriHackathon
